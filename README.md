@@ -1,6 +1,6 @@
 # Lucas da Costa da Silva
 
-🚀 Em busca de oportunidades para iniciar minha jornada como Desenvolvedor Back-End!
+🚀 Em busca da onipotencia como programador
 
 ## Sobre mim
 

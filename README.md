@@ -16,7 +16,7 @@ Estou em busca de oportunidades para colaborar em projetos empolgantes e desafia
 
 ## Vamos nos conectar
 
-- [LinkedIn](linkedin.com/in/lucas-silva-75b792242/)
-- [Email](Lcsilva0702@gmail.com)
+- [LinkedIn](https://linkedin.com/in/lucas-silva-75b792242/)
+- [Email](mailto:Lcsilva0702@gmail.com)
 
 Vamos construir coisas incríveis juntos! 🚀
